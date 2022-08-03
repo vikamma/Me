@@ -4,6 +4,15 @@
 >
 > I'm new in the UK, it's just my third month here
 
+## **Hobbies**
+1. Reading
+2. Listening to music
+3. Workoutin
+4. Watching "Desperate Housewives"
+5. Drinking iced latte with my friends
+6. Doing online shopping
+
+
 ## **Favourite holiday destinations** :airplane:
 - Italy
 - France
